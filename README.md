@@ -1,3 +1,3 @@
 # paloaltosoccer.com
-Ownership of this web domain.
+Ownership of domain name.
 
